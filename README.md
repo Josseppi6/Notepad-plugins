@@ -1,3 +1,5 @@
+My laptop got thw true BSoD it would be nice for a few downloads because at one point github starts paying for downloads so it'd be great if you gave a download it would be amazing!(The true BSoD kills the laptop!)
+
 These are just my normal plugins for NOTEPAD++ download here:
 https://notepad-plus-plus.org/downloads/v8.6.2/
 Easy ScreenShots here!
