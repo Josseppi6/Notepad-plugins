@@ -1,5 +1,4 @@
 My laptop got the true BSoD it would be nice for a few downloads because at one point github starts paying for downloads so it'd be great if you gave a download it would be amazing!(The true BSoD kills the laptop!)
-My family is quite poor so im fine with any money i can get from GH and also my parenta have a massive mortgage to pay back!
 
 These are just my normal plugins for NOTEPAD++ download here:
 https://notepad-plus-plus.org/downloads/v8.6.2/
